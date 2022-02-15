@@ -1,2 +1,2 @@
-# FoodNightingle1
-https://fariahasan.github.io/FoodNightingle1/
+# FoodNightingle2
+https://fariahasan.github.io/FoodNightingle2/
